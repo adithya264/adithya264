@@ -2,8 +2,8 @@
 
 - 🔭 I’m currently working on ...google
 - 🌱 I’m currently learning ...github
-- 👯 I’m looking to collaborate on ...hi
-- 🤔 I’m looking for help with ...hiii
+- 👯 I’m looking to collaborate on ...microsoft
+- 🤔 I’m looking for help with ...mental health
 - 💬 Ask me about ...somethimg
 - 📫 How to reach me: ...hell
 - 😄 Pronouns: ...beast
